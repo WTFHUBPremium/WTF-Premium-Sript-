@@ -1,0 +1,1 @@
+# WTF-Premium-Sript-
